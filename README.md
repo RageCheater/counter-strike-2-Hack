@@ -2,7 +2,6 @@
 counter strike 2 - Rage Cheater
 
 "Hello Brother, This is a cracked cheat for Counter-Strike 2.
-
 I will guide you through the steps you need to follow:
 
 1 - Extract the folder directly to your desktop from the zip file.
@@ -17,6 +16,8 @@ I will guide you through the steps you need to follow:
 
 You can reach me through my social media accounts."
 
+LİNK DOSYA CO : https://www.kisa.link/WciUo 
+LİNK DOSYA TC : https://www.kisa.link/euvUN
 
 ![hilegoruntu](https://github.com/RageCheater/counter-strike-2-Hack/assets/173115721/6d9866e5-7f84-4953-8ce1-a928ebb628a5)
 
