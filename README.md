@@ -17,3 +17,7 @@ I will guide you through the steps you need to follow:
 
 You can reach me through my social media accounts."
 
+
+![hilegoruntu](https://github.com/RageCheater/counter-strike-2-Hack/assets/173115721/6d9866e5-7f84-4953-8ce1-a928ebb628a5)
+
+
